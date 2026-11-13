@@ -1,13 +1,3 @@
-				 ༘ " Their hearts are delicate like glass... yours especially. You're worthy of my grace. " ˑ༄
 <p align="center">
- ಄ <a href="https://pronouns.cc/@kze">pronouns page</a> ˖
-  <a href="https://kaemple.atabook.org/">atabook</a> ಄
-</p>
-
-<p align="center">
-  <img width="801" height="413" alt="image" src="https://github.com/user-attachments/assets/e6d72bc1-c60d-4657-b52b-5e51411fe209" />
-</p>
-
-<p align="center">
-  <img src="https://img.shields.io/badge/strays_:P-5,000-000000?style=flat" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/f799fe1a-995a-464f-af93-a869e1228f4e" />
 </p>
